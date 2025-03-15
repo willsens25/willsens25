@@ -1,7 +1,7 @@
 ## Hi, im Willsens Kiren Alexander
 
 I am a 4th semester student at a university called Bina Nusantara University, currently I am taking a free elective, namely Game Design, User Experience, and Social Media Fundamentals.</br>
-I also joined one of the UKM at Binus, namely KMBD (Dhammavaddhana Buddhist Student Family), and currently I am an administrator in one of the fields/agencies, namely the GD Agency.</br>
+I also joined one of the UKM at Binus, namely KMBD (Keluarga Mahasiswa Buddha Dhammavaddhana), and currently I am an administrator in one of the fields/agencies, namely the Badan GD.</br>
 
 Nice to meet you all 👋 </br>
 
